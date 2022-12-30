@@ -1,6 +1,7 @@
-Thanks for downloading this template!
+Thank you for being my guest.
 
-Template Name: iPortfolio
-Template URL: https://bootstrapmade.com/iportfolio-bootstrap-portfolio-websites-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+If I have been of any benefit or contribution, I am happy.
+
+I wish you a prosperous life full of health and well-being.
+
+Mehmet S OZCAN
